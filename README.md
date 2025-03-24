@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Ol%C3%A1%2C+sou+a+Camistallica!;Meu+nome+%C3%A9+Camila+Ferreira%2C+mas+sou+muito+f%C3%A3+de+Metallica;Seja+bem-vindo!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Ol%C3%A1%2C+sou+a+Camistallica!;Meu+nome+%C3%A9+Camila+Ferreira;Seja+bem-vindo!)](https://git.io/typing-svg)
